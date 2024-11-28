@@ -2,7 +2,7 @@
 
 **Block Blast Adventure Master** is a fun and engaging mobile puzzle game that blends classic block puzzle mechanics with exciting new features. Developed by Hungry Studio, it offers a refreshing twist on traditional puzzle games, combining relaxation with strategic gameplay. Whether you're looking for a fun challenge or a way to unwind, this game has something for everyone.
 
->Download Here 👉: [block blast mod apk](https://modhello.com/block-blast/)
+>Download Here 👉: [Block Blast v5.9.6 MOD APK](https://modhello.com/block-blast/)
 
 ## Features of Block Blast Adventure Master
 
